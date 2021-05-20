@@ -1,1 +1,1 @@
-I Love Mansaf
+I Love Mansaf.
